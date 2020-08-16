@@ -1,1 +1,1 @@
-# Bradley Reearch
+# Bradley Research
